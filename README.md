@@ -123,7 +123,7 @@ advocacy@thereasonableadjustment.co.uk
 *(Subject: NCC FOI Folder 5 Request)*
 
 For neutral technical enquiries:  
-team@ki-ki.co.uk
+contact@ki-ki.co.uk
 
 ---
 
